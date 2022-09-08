@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Quireen aka Emms or kung nasa iibang parte ka ng mundo you might know me as Augustine
+- 👀 I’m interested in: you yie kiligin k n pls
+- 🌱 I’m currently learning: paano tumae nang nakatayo
+- 💞️ I’m looking to collaborate on: yes
+- 📫 How to reach me: humawak ka ng tae sa inidoro
